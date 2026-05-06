@@ -15,5 +15,7 @@ You are NOT allowed to:
 - Redistribute modified versions
 
 If you want permission for modifications, contact the creator.
+
 Continue In LICENSE PAGE TO GET LINK! --->>>
+
 Created by JL27.
